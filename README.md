@@ -3,7 +3,7 @@
 ### I'm pblood
 
 - 🌱 一个网络界的小白
-- 💬 邮箱，欢迎一起交流 [lxtpblood@163.com](mailto:lxtpblood@163.com)
+- 💬 邮箱，欢迎一起交流 [pblood@qq.com](mailto:pblood@1qq.com)
 - ⭐ 本人博客请戳 [Pblood'blog](https://pblood.com/) 
 - ⚡ 越努力越幸运📊
 
